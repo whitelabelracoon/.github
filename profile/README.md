@@ -1,5 +1,8 @@
 ## Next Generation Of Supply Saas 👋
 
+Checkout our Linktr
+https://linktr.ee/boxxed
+
 <!--
 
 **Here are some ideas to get you started:**
